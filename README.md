@@ -1,4 +1,4 @@
-Eduard Petcu - 314CC
+Eduard Petcu
 
 ===========================
 
